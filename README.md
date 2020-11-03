@@ -4,3 +4,5 @@
 🤔 Why is it so cool? We're the coolest kids on the platform.
 
 😳 Who owns this amazing thing?! ThatBlueDevil.
+
+😎 Such Cool. - Encrypted
