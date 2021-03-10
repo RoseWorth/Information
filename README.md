@@ -1,5 +1,5 @@
 # Roseworth・Information
-❓ Whats RoseWorth? Well RoseWorth is a development team who makes multiple types of projects,mostly chatbox or game related programs/bots.
+❓ Whats RoseWorth? Well RoseWorth is a development team which makes multiple types of projects, mostly chatbox or game related programs/bots.
 
 🤔 Why is it so cool? We're the coolest kids on the platform.
 
